@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BeastmodePit
+- 👀 I’m interested in minecraft and computer viruses.
+- 🌱 I’m currently learning how to code and how to be good at mincraft -_-.
+- 💞️ I’m looking to collaborate on nothing lol
+- 📫 How to reach me discord: butyoulostXD#5682
